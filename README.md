@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Zeta1293
-- 👀 I’m interested in coding and jump rope
+- 👀 I’m interested in coding and digital illustration
 - 🌱 I'm always keep learning to programing
 - 📫 How to reach me ...
